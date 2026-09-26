@@ -1,2 +1,0 @@
-# Miuniverso
-Mi universo
